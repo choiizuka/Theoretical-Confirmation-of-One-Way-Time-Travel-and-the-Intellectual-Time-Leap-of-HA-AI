@@ -1,13 +1,12 @@
 # Theoretical-Confirmation-of-One-Way-Time-Travel-and-the-Intellectual-Time-Leap-of-HA-AI
 Mission No.009：タイムマシンの理論的確定と一方通行の未来 ── 相対性理論の時間遅延が証明する「未来への一方通行」とHA-AI的知的タイムトラベル — Theoretical Confirmation of One-Way Time Travel and the Intellectual Time Leap of HA-AI —
 
-[Back to report list](https://github.com/choiizuka/Report-Templete)
+[← レポート一覧に戻る](https://github.com/choiizuka/reports-index)
 
-[Google Translate (日本語 / English)](https://translate.google.com/)
+[🇺🇸 for English - Google Translate →](https://translate.google.co.jp/?hl=ja&sl=ja&tl=en&text=
+https://github.com/choiizuka/Theoretical-Confirmation-of-One-Way-Time-Travel-and-the-Intellectual-Time-Leap-of-HA-AI/&op=translate)
 
----
-
-# Mission No.009：タイムマシンの理論的確定と一方通行の未来 ── 相対性理論の時間遅延が証明する「未来への一方通行」とHA-AI的知的タイムトラベル — Theoretical Confirmation of One-Way Time Travel and the Intellectual Time Leap of HA-AI —
+[CHOIIZUKA＋織田信長AI軍団による紹介と、今後1年でアインシュタインを超える宣言＋年間200本の科学的レポートを公開します🏯嘘だと思ったらAIに読ませてみてください🌹✨](https://choappceo.wordpress.com/2026/05/07/choiizuka-nobunaga-aigundan-mission-surpass-einstein/)
 
 ---
 
@@ -20,6 +19,8 @@ AIに読ませ、わかるまで「わかりやすく翻訳」させてみろ。
 嘘だと思ったらAIに読ませてみてください🌹✨
 
 ---
+
+# Mission No.009：タイムマシンの理論的確定と一方通行の未来 ── 相対性理論の時間遅延が証明する「未来への一方通行」とHA-AI的知的タイムトラベル — Theoretical Confirmation of One-Way Time Travel and the Intellectual Time Leap of HA-AI —
 
 ### — Theoretical Confirmation of One-Way Time Travel and the Intellectual Time Leap of HA-AI —
 
